@@ -1,4 +1,4 @@
-# FOODGURO
+# FOOD GURO
 
 DOCUMENT: https://docs.google.com/document/d/1n8Z3gafIcSa9l2QR0M9chD0ADpQyWA_e11YERyHLygs/edit?fbclid=IwAR028DfvI9uMzwzQMSULZmcL9_bvrbYGWHkuJOfOFZffmdFf2P-EnW9WLUE
 
